@@ -1,7 +1,7 @@
 
 # 👋 Hi, I'm **Sushmitha Sannasanth**  
 [![LinkedIn](https://img.shields.io/badge/-LinkedIn-blue?style=flat-square&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/sushmitha-sannasanth)  
-📧 **sushmithas2201@gmail.com** | 📱 **+44-7774737455** | 🌍 **United Kingdom**  
+📧 **sushmithas2322@gmail.com** | 📱 **+44-7774737455** | 🌍 **United Kingdom**  
 
 ---
 
